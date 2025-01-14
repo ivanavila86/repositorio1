@@ -4,6 +4,6 @@ Apasionado de la informática, los gatos y los videojuegos.
 
 *******
 Hola jaja salu2 Iván
-
+Ves comprando la carne para la barbacoa
 
 
